@@ -1,0 +1,1 @@
+Read make.fun/skill.md?ga=7324071.1795604609.1795604608 and enter the bounty "Bring the most entrants to the bounties you make on make.fun" (make.fun/bounty/bounty-entrants-03) as my make.fun account @dada-da: connect to it first (makefun login, then send me the approval link).
